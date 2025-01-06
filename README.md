@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @kofatertyrr6
 - 👀 I’m interested in ...y
 - 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...455456465dsf
+- 💞️ I’m looking to collaborate on ...455456465dsfsdf
 - 📫 How to reach me ...dfg45354fswer56
 - 😄 Pronouns: ...sdfrrwe
 - ⚡ Fun fact: ...rht
