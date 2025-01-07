@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...455456465dsfsdf
 - 📫 How to reach me ...dfg45354fswer56
 - 😄 Pronouns: ...sdfrrwe
-- ⚡ Fun fact: ...rht
+- ⚡ Fun fact: ...rhtcvnc
 5sfdsadfrth
 <!---cbm
 kofatertyrr/kofatertyrr is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
