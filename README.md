@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @kofatertyrr6
+tyj- 👋 Hi, I’m @kofatertyrr6
 - 👀 I’m interested in ...y
 - 🌱 I’m currently learning ...dsfbcx
 - 💞️ I’m looking to collaborate on ...455456465dsfsdffs
