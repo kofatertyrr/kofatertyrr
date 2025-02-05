@@ -4,7 +4,7 @@ tyj- 👋 Hi, I’m @kofatertyrr6
 - 💞️ I’m looking to collaborate on ...455456465dsfsdffs
 - 📫 How to reach me ...dfg45354fswer56erg
 - 😄 Pronouns: ...sdfrrwe414187687
-- ⚡ Fun fact: ...rhtcvnc543gtrr
+- ⚡ Fun fact: ...rhtcvnc543gtrrxcvvxc
 5sfdsadfrththvdf4877cbv
 <!---cbm
 kofatertyrr/kofatertyrr is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
