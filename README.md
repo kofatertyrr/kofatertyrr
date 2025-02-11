@@ -2,7 +2,7 @@ tyj- 👋 Hi, I’m @kofatertyrr6
 - 👀 I’m interested in ...ycvb
 - 🌱 I’m currently learning ...dsfbcxcxvxcvbc
 - 💞️ I’m looking to collaborate on ...455456465dsfsdffsdfv
-- 📫 How to reach me ...dfg45354fswer56erg
+- 📫 How to reach me ...dfg45354fswer56erggbbggb
 - 😄 Pronouns: ...sdfrrwe4141876875956
 - ⚡ Fun fact: ...rhtcvnc543gtrrxcvvxc
 5sfdsadfrththvdf4877cbv
