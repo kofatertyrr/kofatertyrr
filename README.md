@@ -1,7 +1,7 @@
 dtyj- 👋 Hi, I’m @kofatertyrr6516awds
 - 👀 I’m interested in ...ycvb
 - 🌱 I’m currently learning ...dsfbcxcxvxcvbcses
-- 💞️ I’m looking to collaborate on ...455456465dsfsdffsdfvvbn
+- 💞️ I’m looking to collaborate on ...455456465dsfsdffsdfvvbnfgdf
 - 📫 How to reach me ...dfg45354fswer56erggbbggb
 - 😄 Pronouns: ...sdfrrwe4141876875956ghkghkgbfew
 - ⚡ Fun fact: ...rhtcvnc543gtrrxcvvxcfdsdfsdjjxcv
