@@ -3,7 +3,7 @@ dtyj- 👋 Hi, I’m @kofatertyrr6516awds
 - 🌱 I’m currently learning ...dsfbcxcxvxcvbcses
 - 💞️ I’m looking to collaborate on ...455456465dsfsdffsdfvvbnfgdf
 - 📫 How to reach me ...dfg45354fswer56erggbbggb
-- 😄 Pronouns: ...sdfrrwe4141876875956ghkghkgbfew
+- 😄 Pronouns: ...sdfrrwe4141876875956ghkghkgbfewmhh
 - ⚡ Fun fact: ...rhtcvnc543gtrrxcvvxcfdsdfsdjjxcv
 5sfdsadfrththvdf4877cbvhgnhgcvb
 <!---cbm
