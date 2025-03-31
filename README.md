@@ -7,7 +7,7 @@ gbgdtyj- 👋 Hi, I’m @kofatertyrr6516awds
 - ⚡ Fun fact: ...rhtcvnc543gtrrxcvvxcfdsdfsdjjxcv
 5sfdsadfrththvdf4877cbvhgnhgcvbdfdfvdfd
 <!---cbmdsds
-kofatertyrr/kofatertyrr is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+kofatertyrr/kofatertyrr is a ✨ special ✨ repository because ithmhs `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.e2vbcc
 --->2
 asdewsd
