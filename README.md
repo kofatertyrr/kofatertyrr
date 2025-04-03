@@ -1,4 +1,4 @@
-gbgdtyj- 👋 Hi, I’m @kofatertyrr6516awds
+gbgdtyj- 👋 Hi, I’m @kofatertyrr6516awd
 - 👀 I’m interested in ...ycvbbgdb265
 - 🌱 I’m currently learning ...dsfbcxcxvxcvbcsescvb595
 - 💞️ I’m looking to collaborate on ...455456465dsfsdffsdfvvbnfgdfbvnnvb
