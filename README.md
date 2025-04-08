@@ -3,7 +3,7 @@ vvgbgdtyj- 👋 Hi, I’m @kofatertyrr6516awd
 - 🌱 I’m currently learning ...dsfbcxcxvxcvbcsescvb595
 - 💞️ I’m looking to collaborate on ...455456465dsfsdffsdfvvbnfgdfbvnnvb vvc
 - 📫 How to reach me ...dfg45354fswer56erggbbggbtrhsdfsd
-- 😄 Pronouns: ...sdfrrwe4141876875956ghkghkgbfewmhhsdfdsdfdsfgbsdaasd
+- 😄 Pronouns: ...
 - ⚡ Fun fact: ...rhtcvnc543gtrrxcvvxcfdsdfsdjjxcv
 5sfdsadfrththvdf4877cbvhgnhgcvbdfdfvdfd
 <!---cbmdsds
