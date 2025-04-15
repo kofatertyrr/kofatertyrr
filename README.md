@@ -2,8 +2,7 @@ sdfvvgbgdtyj- 👋 Hi, I’m @kofatertyrr6516awd
 - 👀 I’m interested in ...ycvbbgdb26
 - 🌱 I’m currently learning ...dsfbcxcxvxcvbcsescvb595
 - 💞️ I’m looking to collaborate on ...455456465dsfsdffsdfvvbnfgdfbvnnvb vvcsdfsd
-- 📫 How to reach me ...dfg45354fswer56erggbbggbtrhsdfsdgfnb
-- 😄 Pronouns: ...
+- 📫 How to reach me ...dfgrsfdfesessef
 - ⚡ Fun fact: ...rhtcvnc543gtrrxcvvxcfdsdfsdjjxcvsdfdf
 5sfdsadfrththvdf4877cbvhgnhgcvbdfdfvdfd
 <!---cbmdsds
