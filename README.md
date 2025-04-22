@@ -3,7 +3,7 @@ hrsdfvvgbgdtyj- 👋 Hi, I’m @kofatertyrr6516awd
 - 🌱 I’m currently learning ...dsfbcxcxvxcvbcsescvb595
 - 💞️ I’m looking to collaborate on ...455456465dsfsdffsdfvvbnfgdfbvnnvb vvcsdfsd
 - 📫 How to reach me ...dfgrsfdfesessefrhthtrhr
-- ⚡ Fun fact: ...rhtcvnc543gtrrxcvvxcfdsdfsdjjxcvsdfdf
+- ⚡ Fun fact: ...rhtcvnc543gtrrxcvvxcfdsdfsdjjxcvsdfdfgffg
 5sfdsadfrththvdf4877cbvhgnhgcvbdfdfvdfdnfff
 <!---cbmdsds
 kofatertyrr/kofatertyrr is a ✨ special ✨ repository because ithmhs `README.md` (this file) appears on your GitHub profile.
