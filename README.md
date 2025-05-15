@@ -1,7 +1,7 @@
 hrsdfvvgbgdtyj- 👋 Hi, I’m @kofatertyrr6516awd
 - 👀 I’m interested in ...ycvbbgdb26fwrewfed
 - 🌱 I’m currently learning ...dsfbcxcxvxcvbcsescvb595resds
-- 💞️ I’m looking to collaborate on ...455456465dsfsdffsdfvvbnfgdfbvnnvb vvcsdrtyrtfsd
+- 💞️ I’m looking to collaborate on ...455456465dsfsdffsdffdsfdswevvbnfgdfbvnnvb vvcsdrtyrtfsd
 - 📫 How to reach me ...dfgrsfdfesessefrhthtrhrfdgdfdthtdghtrrthrt
 - ⚡ Fun fact: ...rhtcvnc543gtrrxcvvxcfdsdfsdjjxcvsdfdfgffgdgdgfgfdgdfdhfhfdfgbfbgfvc
 5sfdsadfrththvdf4877cbvhgnhgcvbdfdfvdfdnfff
