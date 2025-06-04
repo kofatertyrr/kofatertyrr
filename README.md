@@ -7,7 +7,7 @@ hrsdfvvgbgdtyj- 👋 Hi, I’m @kofatertyrr6516awd
 5sfdsadfrththvdf4877cbvhgnhgcvbdfdfvdfdnregrgedsds
 kofatertyrr/kofatertyrr is a ✨ special ✨ repository because ithmhs `README.md` (thdfbfbis file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.e2vbccrehdhf
---->2regreregerfdxc
+--->2regreregerfdxcgerrgegrec
 asdewsd
 543534fdfsergregreg
 rwerzxczx
